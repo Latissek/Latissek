@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Latissek
+- 👀 I’m interested in making cool stuff
+- 🌱 I’m currently learning how to live
+- 📫 How to reach me: Hit me up on Twitter @latissek
